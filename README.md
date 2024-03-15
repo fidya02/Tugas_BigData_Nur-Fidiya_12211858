@@ -1,0 +1,1 @@
+# Tugas_BigData_Nur-Fidiya_12211858
